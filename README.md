@@ -9,7 +9,6 @@ the best business school in Latin America. In addition to that, currently I’m 
 
 * 🌍  I'm based in Vitoria and Sao Paulo, Brazil
 * ✉️  You can contact me at [amandaqlopes@gmail.com](mailto:amandaqlopes@gmail.com)
-* 🚀  I'm currently in the process of career migration, looking for my first opportunity in the technology market
 * 🧠  I'm very curious, so I'm always interested in learning new things
 * 🌱  Passionate about gardening
 

@@ -4,11 +4,11 @@ Hi! My name is Amanda
 #WomenInTech 👩🏻‍💻 [![wakatime](https://wakatime.com/badge/user/37862ba9-7f00-43d7-b692-edb948281039.svg)](https://wakatime.com/@37862ba9-7f00-43d7-b692-edb948281039)
 -----------------------------
 
-I have 7+ years of experience in communication, design, projects and team management. I hold a bachelor's degree in Advertising at [UFES](https://internacional.ufes.br/en/home), one of the 30 best universities in Brazil, and an MBA in Business Management at [FGV](https://portal.fgv.br/en), 
+I have 9+ years of experience in communication, design, projects and team management. I hold a bachelor's degree in Advertising at [UFES](https://internacional.ufes.br/en/home), one of the 30 best universities in Brazil, and an MBA in Business Management at [FGV](https://portal.fgv.br/en), 
 the best business school in Latin America. In addition to that, currently I’m studying for a degree in System Analysis and Development at [UVV](https://uvv.br), the best private university in Brazil.
 
 * 🌍  I'm based in Vitoria and Sao Paulo, Brazil
-* ✉️  You can contact me at [amandaqlopes@gmail.com](mailto:amandaqlopes@gmail.com)
+* ✉️  You can contact me at [amandaqlopes@gmail.com](mailto:amandascandian@gmail.com)
 * 🧠  I'm very curious, so I'm always interested in learning new things
 * 🌱  Passionate about gardening
 

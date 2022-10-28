@@ -8,7 +8,7 @@ I have 9+ years of experience with communication, design, projects and team mana
 the best business school in Latin America. In addition to that, currently I’m studying for a degree in System Analysis and Development at [UVV](https://uvv.br), the best private university in Brazil.
 
 * 🌍  I'm based in Vitoria and Sao Paulo, Brazil
-* ✉️  You can contact me at [amandaqlopes@gmail.com](mailto:amandascandian@gmail.com)
+* ✉️  You can contact me at [amandascandian@gmail.com](mailto:amandascandian@gmail.com)
 * 🧠  I'm very curious, so I'm always interested in learning new things
 * 🌱  Passionate about gardening
 
